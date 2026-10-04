@@ -130,4 +130,8 @@ Ancak bu vaka çalışmasının kapsamında özellik bilinçli olarak küçük t
 
 İrem Tuana Bayat
 
+Figma Linki
+
+https://bunch-affix-02910142.figma.site/
+
 D-Plan Staj Programı — Vaka Çalışması
